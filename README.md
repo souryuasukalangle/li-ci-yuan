@@ -34,6 +34,6 @@ zilla：https://18h.animezilla.com/
 
 禁漫：https://18comic.org 
 
-绅士漫画：https://www.wnacg.org/ 
+绅士漫画：https://www.wnacg.com/
 
 污污：https://www.wuwumanhua.fun/ 

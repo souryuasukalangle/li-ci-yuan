@@ -2,8 +2,6 @@
 
 里番网站（vpn，梯子，加速器）
 
-avbebe：https://avbebe.com/
-
 bad：https://bad.news/dm/
 
 h次元：https://h-ciyuan.com/

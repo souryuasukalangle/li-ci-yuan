@@ -1,5 +1,3 @@
-#q群免费提供加速器vpn梯子
-
 里番网站（vpn，梯子，加速器）
 
 bad：https://bad.news/dm/
